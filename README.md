@@ -1,16 +1,15 @@
-![Tanvik Electricals Logo](logo.png)
 
-# Tanvik Electricals & Plumbing Service
+## Contact
 
-Electrical Repair
+📞 Phone:
++91 9751239427
++91 9739247900
 
-• House Wiring & Maintenance  
-• Electrical Installation Work  
-• Plumbing Repair & Services  
-• General Maintenance Services  
+💬 WhatsApp:
+https://wa.me/919751239427
 
-## About Us:
-We provide quality service with safety, reliability, and customer satisfaction as our priority.
+📍 Location:
+Chandra Layout, Bengaluru, Karnataka
 
-## Contact:
-For electrical and plumbing service requirements, please contact us.
+📍 Google Maps:
+https://maps.google.com/?q=Chandra+Layout+Bengaluru
